@@ -1,1 +1,1 @@
-# www.nanotaenergy.com
+# nanotaenergy.com
